@@ -1,1 +1,20 @@
-<img src="blob:chrome-untrusted://media-app/f4b5b5c9-c55d-43de-8273-1c53cb16c70e" alt=""/><img width="221" height="157" alt="" src="https://github.com/user-attachments/assets/f1d44b12-3a9e-43f1-8899-72646eeb1785" />
+
+<img src="blob:chrome-untrusted://media-app/a8bc3e77-5c35-45d4-b659-21f0cd7b2897" alt=""/><img width="800" height="800" alt="image" src="https://github.com/user-attachments/assets/b2ad55a1-19c0-43f6-99c7-fb87831517e1" />
+
+
+
+╭◦⋆˚｡ 𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
+
+┊➶˒˚｡ ⁀➴ ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
+
+I don't mind c+h ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
+
+┊·˚₊⊹
+
+┊⋆·˚ ༘ * " 𓉘One eclipse . ★"𓉝
+
+┊➶-͙˚ ༘✶
+
+┊༉‧₊˚. ⁀➴ #1 Fan of Avril Lavigne .
+
+╰◦⋆˚｡ 𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠
